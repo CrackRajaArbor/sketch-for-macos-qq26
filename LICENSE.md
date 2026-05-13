@@ -1,4 +1,4 @@
-# 
+# Sketch for macOS best Brushes: 3D rendering & export to SVG is the best Sketch for macOS brush, featuring 3D rendering and export to SVG. Safe, efficient, and optimized for
 
 
 
